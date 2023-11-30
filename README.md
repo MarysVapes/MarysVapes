@@ -15,5 +15,5 @@ Zyns
 
 **Weed**
 
-Eddys (25$
-Phenoix (50$)
+• Eddys (25$)
+• Phenoix (50$)

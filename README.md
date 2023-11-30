@@ -18,4 +18,4 @@ Zyns
 **Weed**
 
 • Eddys (25$)
-• Phenoix (50$)
+• Phenoix (60$)
